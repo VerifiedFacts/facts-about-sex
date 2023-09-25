@@ -1,1 +1,24 @@
 # facts-about-sex
+
+# Sex
+
+- [As a result of increased blood flow to the area, women's nipples are erect and a little darker in color than usual. Also some women's breasts swell during arousal and can actually increase in size.](https://thefactbase.com/as-a-result-of-increased-blood-flow-to-the-area-women-s-nipples-are-erect-and-a-little-darker-in-color-than-usual-also-some-women-s-breasts-swell-during-arousal-and-can-actually-increase-in-size)
+- [For the ultimate orgasm, abstain from all sexual activity for three weeks. That is the amount of time it takes for your testosterone levels to peak and boost your libido.](https://thefactbase.com/for-the-ultimate-orgasm-abstain-from-all-sexual-activity-for-three-weeks-that-is-the-amount-of-time-it-takes-for-your-testosterone-levels-to-peak-and-boost-your-libido)
+- [The word "vagina" comes from the Latin meaning of "sheath" or "scabbard," used to protect swords.](https://thefactbase.com/the-word-vagina-comes-from-the-latin-meaning-of-sheath-or-scabbard-used-to-protect-swords)
+- [You really can turn a guy on with your voice.](https://thefactbase.com/you-really-can-turn-a-guy-on-with-your-voice)
+- [Speaking of lube, you can use coconut oil for that.](https://thefactbase.com/speaking-of-lube-you-can-use-coconut-oil-for-that)
+- [An average human male creates enough sperm to impregnate every fertile female on Earth every 2 weeks. He produces 1500 sperm per second, several million per day, and 8 billion in 64 days.](https://thefactbase.com/an-average-human-male-creates-enough-sperm-to-impregnate-every-fertile-female-on-earth-every-2-weeks-he-produces-1500-sperm-per-second-several-million-per-day-and-8-billion-in-64-days)
+- [Nipple play enhances sexual arousal in approximately 82% of young women and 52% of young men.](https://thefactbase.com/nipple-play-enhances-sexual-arousal-in-approximately-82-of-young-women-and-52-of-young-men)
+- [People who sleep on their stomachs with their arms above their heads have more sexual dreams.](https://thefactbase.com/people-who-sleep-on-their-stomachs-with-their-arms-above-their-heads-have-more-sexual-dreams)
+- [A woman's breasts can swell up to 25 % when she is turned on.](https://thefactbase.com/a-woman-s-breasts-can-swell-up-to-25-when-she-is-turned-on)
+- [One orgasm a day may decrease a man's risk of prostate cancer.](https://thefactbase.com/one-orgasm-a-day-may-decrease-a-man-s-risk-of-prostate-cancer)
+- [The clitoris is a powerhouse of nerves with 8,000 nerve endings, which is double the amount that exists in the penis.](https://thefactbase.com/the-clitoris-is-a-powerhouse-of-nerves-with-8-000-nerve-endings-which-is-double-the-amount-that-exists-in-the-penis)
+- [Scientists speculate that the head of a human penis evolved into its current mushroom shape in order to scoop rival male's sperm out of the vagina.](https://thefactbase.com/scientists-speculate-that-the-head-of-a-human-penis-evolved-into-its-current-mushroom-shape-in-order-to-scoop-rival-male-s-sperm-out-of-the-vagina)
+- [At the time you orgasm, an average person's heart beats at the rate of 140 beats per minute.](https://thefactbase.com/at-the-time-you-orgasm-an-average-person-s-heart-beats-at-the-rate-of-140-beats-per-minute)
+- [Oral sex typically leads to a larger erection than other types of arousal methods.](https://thefactbase.com/oral-sex-typically-leads-to-a-larger-erection-than-other-types-of-arousal-methods)
+- [It wasn't until 1969 that Canada made oral sex and other sexual acts legal in the country. The United States didn't throw out its oral sex laws until 2003.](https://thefactbase.com/it-wasn-t-until-1969-that-canada-made-oral-sex-and-other-sexual-acts-legal-in-the-country-the-united-states-didn-t-throw-out-its-oral-sex-laws-until-2003)
+- [3% of people have no sexual fantasies. The other 97% fantasize on a daily or weekly basis.](https://thefactbase.com/3-of-people-have-no-sexual-fantasies-the-other-97-fantasize-on-a-daily-or-weekly-basis)
+- [Frequent sex may improve a man's sperm quality, reduce DNA damage to sperm, and increase fertility.](https://thefactbase.com/frequent-sex-may-improve-a-man-s-sperm-quality-reduce-dna-damage-to-sperm-and-increase-fertility)
+- [The medical community has listed over 500 sexual fetishes or paraphilia. They range from arousal at dressing like a giant cartoon animal to arousal while falling down the stairs.](https://thefactbase.com/the-medical-community-has-listed-over-500-sexual-fetishes-or-paraphilia-they-range-from-arousal-at-dressing-like-a-giant-cartoon-animal-to-arousal-while-falling-down-the-stairs)
+- [After fingers and vibrators, candles are the phallic objects used most often by female masturbators. Unlit ones, hopefully.](https://thefactbase.com/after-fingers-and-vibrators-candles-are-the-phallic-objects-used-most-often-by-female-masturbators-unlit-ones-hopefully)
+- [Some women are aroused by chimpanzee porn.](https://thefactbase.com/some-women-are-aroused-by-chimpanzee-porn)
